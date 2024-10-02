@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @NatanshK
+- 👋 Hi, I’m Natansh Ken.
 - 👀 I’m interested in absolutely nothing.
 - 🌱 I’m currently learning - I hope atleast something.
 
